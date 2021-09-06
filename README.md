@@ -1,2 +1,2 @@
 # jlyrataborasakalam-gmail.com-
-Member of organization chid rple
+Member of organization chid role
